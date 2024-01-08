@@ -12,7 +12,7 @@ Althea Caitlin Competente
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/2hvxjH2Xa8LWZ8lXIEXlQd?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-## FUN FACTS !!
+## FUN FACTS
 > - The first volume sold 150,000 copies within the week of its release. By September of 2023, the series had 200,000 copies in circulation.
 > - A pop-up store selling merchandise from the series was open in Ikebukuro from September 15–24 and in Nagoya from September 30 to October 9, 2023.
 > - A columnist for Animate Times praised the artwork, particularly its use of color, and the story's progression. Momo Tachibana of Real Sound praised the main characters and their interactions, describing them as understable. Erica Friedman felt the story was "not the first of it's kind" but that it handled its subject better than similar series. Friedman also praised the artwork and its use of black, white, and green.
